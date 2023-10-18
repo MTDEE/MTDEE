@@ -6,7 +6,9 @@
 
 >🫵 You can follow me on multiple channels.
 
->👉 My IG: MTDEE.
+>👉 My IG: MT_DEE.
+
+>👉Email: deekub8147@gmail.com
 
 <!---
 MTDEE/MTDEE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
